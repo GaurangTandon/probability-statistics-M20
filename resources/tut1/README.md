@@ -1,0 +1,3 @@
+- questions for today's tutorial [here](https://iiitaphyd-my.sharepoint.com/:p:/g/personal/arpan_dasgupta_research_iiit_ac_in/EbtmFCpnhEVHnwI0NwUn-a0BZ7r-DsYW7gD5DdnoJNUBzQ?e=G70Ojs)
+- PDF for question 1 discussion, the discussion of the quiz questions, and of the question 6 modification here in this folder
+- The session was also recorded - [video link](https://web.microsoftstream.com/video/555349fd-2c77-4b27-9502-06d3347de0a1)
