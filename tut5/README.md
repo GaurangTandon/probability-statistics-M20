@@ -1,4 +1,4 @@
-Recording is [here](NONE)
+Recording is [here](https://web.microsoftstream.com/video/c403f514-fb89-4a00-8e26-11be4666955b)
 
 (Gaurang: Sorry for the Xournal++ crash today, I have uploaded the images and jamboard pdf instead.)
 
